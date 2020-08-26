@@ -3,7 +3,7 @@ I've Changed my Username :P
 
 Hello people,
 
-Nothing to be panic about, nothing is changed. *Expect for the username of course ;)*
+Nothing to be panic about, nothing else is changed, *only the username ;)*
 
 [Goto the new profile >>](https://github.com/nirui)
 
